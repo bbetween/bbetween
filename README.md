@@ -1,2 +1,2 @@
 # bbetween
-me + raz  accumulated situation
+me + raz + moms accumulated situation (jobs living food etc)
